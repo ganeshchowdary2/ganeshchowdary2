@@ -6,9 +6,7 @@ The world is full of opportunities, and as a result, it is difficult to keep up 
 
    ### Whar are you working on? What’s your favorite hobby?
     
-  I am a freelance writer and have been working as a content writer for the past six years. I enjoy writing about different topics such as science, technology, health, fitness, and beauty. I love to write and I am also a big fan of reading. My favorite hobby is cooking. I like to experiment with new dishes and enjoy trying out new recipes.
-
-
+  I am a software tester having 3 years of manual testing experience, and i would like achieve a professional job role in a multi national company. My favorite hobby is playing cricket and i enjoy playing cricket. some of my hobbies are swimming, exploring nature, reading books, surfing and getting knowledge from the internet.
 
 
 
